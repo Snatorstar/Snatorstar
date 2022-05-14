@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Snatorstar
-- 👀 I’m interested in Program
+- 👀 I’m interested in Programming
 - 📫 How to reach me In Telegram : @SnaToR_sTaR
 
 <!---
